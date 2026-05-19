@@ -23,6 +23,10 @@ The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
 Harry met the Unicorn King who granted him magic powers.
+Harry took another step, but a voice barked, “Careful there, lad—this path bites back.”
+A zookeeper in a mud-stained green coat stepped from behind the ferns, holding a ring of brass keys.
+“I heard the horn too,” she said, glancing toward the shadows. “If the old door opened itself, something royal has wandered loose.”
+She led Harry deeper into the hidden enclosure, where the air shimmered gold.
 The end.
 
 ## Cast
