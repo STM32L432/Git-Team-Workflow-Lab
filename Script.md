@@ -23,6 +23,21 @@ The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
 Harry met the Unicorn King who granted him magic powers.
+
+Harry took a tentative step through the door and followed the stone path overgrown with giant ferns.
+
+At the end of the path stood a clearing Harry had never seen from the street. In its center was a unicorn taller than any horse, with a silver mane and a horn that glowed like morning light. Beside it stood the zookeeper, hat in hand, as if greeting royalty.
+
+“This is the Unicorn King,” she whispered. “And he has been waiting for someone who would stop for an open door.”
+
+The Unicorn King lowered his head until his horn touched Harry’s forehead. Warmth rushed through Harry’s body, bright and sudden, and the gray morning seemed to split open with color. When Harry looked down, sparks of gold danced at his fingertips.
+
+“Your magic is not for showing off,” said the King. “It is for protecting what others forget to protect.”
+
+Harry nodded, though his knees were shaking. Then the wooden door creaked shut behind him, and somewhere far away, the school bell rang.
+
+Harry was going to be late again—but this time, he had an excellent reason.
+
 The end.
 
 ## Cast
